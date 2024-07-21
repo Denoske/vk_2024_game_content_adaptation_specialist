@@ -1,0 +1,1 @@
+# vk_2024_game_content_adaptation_specialist
